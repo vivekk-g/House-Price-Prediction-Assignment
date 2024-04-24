@@ -37,7 +37,7 @@ Give credit here.
 
 
 ## Contact
-Created by [Vivek Goswami- feel free to contact me!
+Created by [Vivek Goswami @vivekk-g]- feel free to contact me!
 
 
 <!-- Optional -->
